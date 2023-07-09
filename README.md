@@ -1,5 +1,5 @@
 
-👋 Hi, I'm @uparkalau
+👋 Hi, I'm Vlad @uparkalau
 
 Welcome to my GitHub portfolio! Here's a little bit about me:
 
